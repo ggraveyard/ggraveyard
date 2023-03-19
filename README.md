@@ -1,4 +1,4 @@
-![](https://i.pinimg.com/564x/09/b2/eb/09b2eb304c2df1948b478a709edf321c.jpg)
+![](https://cdn.discordapp.com/attachments/969695120641376288/1086899233623380028/blur_edges2.png)
 
 **ELYSIAN SYSTEM .** ![](https://pixelbank.neocities.org/decome/bears/5f01644f.gif)
 
